@@ -5,7 +5,7 @@ My name is Amy! I am a graphic design student who loves designing and creating a
 
 > Random facts!
 
-### Objectives
+## Objectives
 Creative Graphic Design student with experience in Illustration, branding, and visual communication seeking a retail position in a creative and team-oriented environment. Skilled in communication, organization, and customer interaction with a strong passion for art, design, and visual presentation. 
 
 **Creative Skills**
