@@ -9,8 +9,10 @@ My name is Amy! I am a graphic design student who loves designing and creating a
 Creative Graphic Design student with experience in Illustration, branding, and visual communication seeking a retail position in a creative and team-oriented environment. Skilled in communication, organization, and customer interaction with a strong passion for art, design, and visual presentation. 
 
 **Creative Skills**
-Traditional and digital illustration
-Branding, layout, and visual design
-Adobe Creative Suite and Figma proficiency
+- Traditional and digital illustration
+- Creative Storytelling
+- Concept Designing
+- Branding, layout, and visual design
+- Adobe Creative Suite and Figma proficiency
 
 
