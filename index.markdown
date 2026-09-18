@@ -3,7 +3,7 @@
 ## About Me
 My name is Amy! I am a graphic design student who loves designing and creating art. Some of the things I enjoy to do character & world concepts, animations, designing posters, book designs, crafts, storytelling (in writing and art) and much more! I am open to trying new things and being creative has always been my strongest skill.
 
-> Random facts!
+> **Some Random facts!**
 > - I love mint chocolate ship ice cream
 > - My favourite savour dish is crispy fried noodles
 > - One of my favourite shows is ***Steven Universe***
