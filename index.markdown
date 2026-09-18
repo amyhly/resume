@@ -22,6 +22,9 @@ Creative Graphic Design student with experience in Illustration, branding, and v
 ## WORK FROM FIRST YEAR:
 Here are some pieces I made as a first year graphic design student.
 
-![image of bookcover mockup](bookcovermockup.png)
+![King in Yellow bookcover mockup](bookcovermockup.png)
+![BUGSB!TE album mockup](bugsbite.jpg)
+![The Harmonics album mockup](theharmonics.jpg)
+![Seamless Loader Video](Seamlessloader.mp4)
 
 
