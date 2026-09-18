@@ -20,6 +20,8 @@ Creative Graphic Design student with experience in Illustration, branding, and v
 - Adobe Creative Suite and Figma proficiency
 
 ## WORK FROM FIRST YEAR:
+Here are some pieces I made as a first year graphic design student.
 
+![]
 
 
